@@ -1,4 +1,4 @@
 Oriol Trullols
-24/1/2024
-11:19
+24/01/24
+Ins Mollerussa
 
